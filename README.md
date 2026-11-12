@@ -1,2 +1,2 @@
-# -Islamic-Center-Charity-
+Islamic Center and Charity
 Professional Web Designer Developer &amp; WordPress Expert  Helping Businesses and Creators Build Stunning, Functional Websites.
